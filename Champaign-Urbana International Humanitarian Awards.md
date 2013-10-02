@@ -22,7 +22,12 @@ C-U Immigration Forum - *Human Rights Award*
 
 Entertainment and Sponsors
 --------------------------
-Entertainment was provided by Nathaniel Banks & Friends, Xiaokang Tang,Capoeira Angola Center of Mestre Joao Grande, and the Asian American Cultural Center Exhibit.
+Entertainment provided by:
+
+- Nathaniel Banks & Friends
+- Xiaokang Tang
+- Capoeira Angola Center of Mestre Joao Grande
+- Asian American Cultural Center Exhibit.
 
 Event sponsored by:
 
